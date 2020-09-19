@@ -1,1 +1,11 @@
-# Lab3_MS-Word-by-Mark
+Studying with a plan
+=======
+
+Purpose
+-----------
+
+Courses taken
+-----------
+
+Table of Assignments and Evaluations
+-----------
